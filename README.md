@@ -1,1 +1,2 @@
 # trail
+tamnche pe disco
