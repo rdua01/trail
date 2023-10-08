@@ -1,3 +1,3 @@
 # trail
 tamnche pe disco
-aja tuje maoi kara disco
+aja tuje mai kara disco
